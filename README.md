@@ -5,5 +5,5 @@ With a keen interest in writing and having a Tech background, I bring to You som
 3) Digital Marketing
 
 
-Please find below my Medium Profile, you will find all the blogs there!!
+Please find my Medium Profile, you will find all the blogs there!!
 https://medium.com/@bhattniti03
